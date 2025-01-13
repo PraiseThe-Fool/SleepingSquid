@@ -22,6 +22,11 @@
 - Special Civil Servant
 - Greatest Estate Developer
 - (TOTCF) Trash Of The Count's Family
+- Duke's Private Tutor
+- Dear Door
+- Leveling Up, By Only Eating!
+- Don't Mess With The Puppy
+- The Exiled Reincarnated Heavy Knight Is      Unrivalled In Game Knowledge
 
 GOATS (I LOVE)
 - LOTM Lord Of The Mysteries
