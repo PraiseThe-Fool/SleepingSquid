@@ -27,6 +27,10 @@
 - Leveling Up, By Only Eating!
 - Don't Mess With The Puppy
 - The Exiled Reincarnated Heavy Knight Is      Unrivalled In Game Knowledge
+- Eternal Contract
+- The Old Man Reincarnated As A Villainess
+- Dungeon Reset
+- Regressing With The King's Power
 
 GOATS (I LOVE)
 - LOTM Lord Of The Mysteries
@@ -35,10 +39,21 @@ GOATS (I LOVE)
 - The Boy And The Wolf
 - Horimiya
   
-Danmei's
+Danmeis
 - SVSS Scum Villai's Self-Saving System
 - TGCF Heaven Official's Blessing
 - MDZS Mo DAO Zu Shi (IT SO LONG)
 - Global Examination
 - Little Mushroom
 - I Have To Be A Great Villain
+- Intoxicated / Ni Jiu
+- My Boss Is A Goddess
+
+- BLs
+- The Hunter Wants To Live Quietly
+- Scammer And Rammed
+- Turning
+- Online Game Nakama to Sashi Off shitara      Shokuba no Onijoushi ga Kita.
+- Guiding Hazard
+- How To Survive As A Player
+- Mission: Save The Hunter
