@@ -4,7 +4,7 @@
 - Link Click
 - Dungeon Meshi
 - (PJsekai) Project Sekai
-- CRK Cookie Run Kingdom
+- (CRK) Cookie Run Kingdom
 - (GI) Genshin Impact
 - (AC) Assassination Classroom
 - (SkyCOTL) Sky Children Of The Light
@@ -14,13 +14,21 @@
 - The Earth Is Online
 - Journey To The West
 - Solo Leveling
+- (BATF) Beginning After The End
 - Mieruko-Chan
-- Sasali To Miyano
+- Sasaki To Miyano
+- (GND) Guildmate Next Door
+- 16647 (I'M GONNA GET ATTACKED)
+- Special Civil Servant
+- Greatest Estate Developer
+- (TOTCF) Trash Of The Count's Family
 
 GOATS (I LOVE)
 - LOTM Lord Of The Mysteries
 - ORV Omniscient Reader's Viewpoint
 - NETKAMA PUNCH!!!
+- The Boy And The Wolf
+- Horimiya
   
 Danmei's
 - SVSS Scum Villai's Self-Saving System
