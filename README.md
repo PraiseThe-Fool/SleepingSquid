@@ -25,7 +25,9 @@
 - Regressing With The King's Power
 - Reincarnated As An Aristocrat With An Appraisal Skill
 - I Was Reincarnated As The 7th Prince So I Will Perfect My Magic As I Please
-
+- Apothecary Diaries
+- Tondemo Skill de Isekai Hourou Meshi
+  
 
 GOATS (I LOVE)
 - LOTM Lord Of The Mysteries (Action,Fantasy)
@@ -45,7 +47,10 @@ Danmeis
 - Intoxicated / Ni Jiu
 - My Boss Is A Goddess
 - The Earth Is Online
-
+- Social Temperature
+- Me And My Zoo
+- Demon Apartment
+  
 
 - BLs
 - The Hunter Wants To Live Quietly
@@ -63,3 +68,5 @@ Danmeis
 - (GND) Guildmate Next Door
 - 16647 (I'M GONNA GET ATTACKED)
 - 4 Weeks Lover
+- Ten Count
+
