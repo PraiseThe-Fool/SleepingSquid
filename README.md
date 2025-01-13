@@ -27,16 +27,16 @@
 - I Was Reincarnated As The 7th Prince So I Will Perfect My Magic As I Please
 - Apothecary Diaries
 - Tondemo Skill de Isekai Hourou Meshi
-  
+   
 ✦
-
+  
 𝙂𝙊𝘼𝙏𝙎 ( 𝙄 𝙇𝙊𝙑𝙀 )
 - LOTM Lord Of The Mysteries (Action,Fantasy)
 - ORV Omniscient Reader's Viewpoint (Action)
 - NETKAMA PUNCH!!! (BL)
 - The Boy And The Wolf (Action,BL)
 - Horimiya (Slice Of Life)
-
+ 
 ✦
   
 𝘿𝘼𝙉𝙈𝙀𝙄𝙎
@@ -52,10 +52,10 @@
 - Social Temperature
 - Me And My Zoo
 - Demon Apartment
-
-  ✦
-
-- 𝘽𝙇𝙎
+ 
+✦
+ 
+𝘽𝙇𝙎
 - The Hunter Wants To Live Quietly
 - Scammer And Rammed
 - Turning
