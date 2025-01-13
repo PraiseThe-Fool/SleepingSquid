@@ -19,10 +19,12 @@
 - Greatest Estate Developer
 - (TOTCF) Trash Of The Count's Family
 - Leveling Up, By Only Eating!
-- The Exiled Reincarnated Heavy Knight Is      Unrivalled In Game Knowledge
+- The Exiled Reincarnated Heavy Knight Is Unrivalled In Game Knowledge
 - The Old Man Reincarnated As A Villainess
 - Dungeon Reset
 - Regressing With The King's Power
+- Reincarnated As An Aristocrat With An Appraisal Skill
+- I Was Reincarnated As The 7th Prince So I Will Perfect My Magic As I Please
 
 
 GOATS (I LOVE)
@@ -49,7 +51,7 @@ Danmeis
 - The Hunter Wants To Live Quietly
 - Scammer And Rammed
 - Turning
-- Online Game Nakama to Sashi Off shitara      Shokuba no Onijoushi ga Kita.
+- Online Game Nakama to Sashi Off shitara Shokuba no Onijoushi ga Kita.
 - Guiding Hazard
 - How To Survive As A Player
 - Mission: Save The Hunter
@@ -60,4 +62,4 @@ Danmeis
 - Sasaki To Miyano
 - (GND) Guildmate Next Door
 - 16647 (I'M GONNA GET ATTACKED)
-
+- 4 Weeks Lover
