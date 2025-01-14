@@ -1,3 +1,7 @@
+   
+ ✦
+  
+
 𝙂𝘼𝙈𝙀𝙎 𝙁𝘼𝙉𝘿𝙊𝙈𝙎
 - (HSR) Honkai Star Rail
 - (GI) Genshin Impact 
@@ -5,7 +9,7 @@
 - (CRK) Cookie Run Kingdom
 - (SkyCOTL) Sky Children Of The Light
    
-✦
+ ✦
   
 𝙁𝘼𝙉𝘿𝙊𝙈𝙎 / 𝙏𝙃𝙄𝙉𝙂𝙎
 - Alien Stage
@@ -15,6 +19,7 @@
 - Dungeon Meshi
 - That Time I Gon Reincarnated As A Slime
 - Overlord
+- Saga Of Tanya The Evil
 - Skip And Loafer
 - Cells At Work
 - Journey To The West
@@ -34,7 +39,7 @@
 - Apothecary Diaries
 - Tondemo Skill de Isekai Hourou Meshi
    
-✦
+ ✦
   
 𝙂𝙊𝘼𝙏𝙎 ( 𝙄 𝙇𝙊𝙑𝙀 )
 - LOTM Lord Of The Mysteries (Action,Fantasy)
@@ -43,12 +48,12 @@
 - The Boy And The Wolf (Action,BL)
 - Horimiya (Slice Of Life)
  
-✦
+ ✦
   
 𝘿𝘼𝙉𝙈𝙀𝙄𝙎
-- SVSS Scum Villai's Self-Saving System
-- TGCF Heaven Official's Blessing
-- MDZS Mo Dai Zu Shi (IT SO LONG)
+- (SVSS) Scum Villai's Self-Saving System
+- (TGCF) Heaven Official's Blessing
+- (MDZS) Mo Dai Zu Shi (IT SO LONG)
 - Global Examination
 - Little Mushroom
 - I Have To Be A Great Villain
@@ -63,17 +68,18 @@
  
 𝘽𝙇𝙎
 - The Hunter Wants To Live Quietly
+- Tadaima Okaeri
 - Scammer And Rammed
 - Turning
 - Online Game Nakama to Sashi Off shitara Shokuba no Onijoushi ga Kita.
 - Guiding Hazard
 - How To Survive As A Player
-- Mission: Save The Hunter
 - Duke's Private Tutor
 - Dear Door
 - Don't Mess With The Puppy
 - Eternal Contract
 - Sasaki To Miyano
+- Dakaichi
 - (GND) Guildmate Next Door
 - 16647 (I'M GONNA GET ATTACKED)
 - 4 Weeks Lover
