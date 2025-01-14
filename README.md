@@ -1,15 +1,21 @@
- 𝙁𝘼𝙉𝘿𝙊𝙈𝙎 / 𝙏𝙃𝙄𝙉𝙂𝙎
-- Alien Stage
-- Frieren
-- Link Click
-- Dungeon Meshi
+𝙂𝘼𝙈𝙀𝙎 𝙁𝘼𝙉𝘿𝙊𝙈𝙎
+- (HSR) Honkai Star Rail
+- (GI) Genshin Impact 
 - (PJsekai) Project Sekai
 - (CRK) Cookie Run Kingdom
-- (GI) Genshin Impact
-- (AC) Assassination Classroom
 - (SkyCOTL) Sky Children Of The Light
+   
+✦
+  
+𝙁𝘼𝙉𝘿𝙊𝙈𝙎 / 𝙏𝙃𝙄𝙉𝙂𝙎
+- Alien Stage
+- Link Click
+- (AC) Assassination Classroom
+- Frieren
+- Dungeon Meshi
 - That Time I Gon Reincarnated As A Slime
-- Skip And Loader
+- Overlord
+- Skip And Loafer
 - Cells At Work
 - Journey To The West
 - Solo Leveling
