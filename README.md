@@ -4,7 +4,8 @@
 
 𝙂𝘼𝙈𝙀𝙎 𝙁𝘼𝙉𝘿𝙊𝙈𝙎
 - (HSR) Honkai Star Rail
-- (GI) Genshin Impact 
+- (GI) Genshin Impact
+- (WuWa) Wuthering Waves
 - (PJsekai) Project Sekai
 - (CRK) Cookie Run Kingdom
 - (SkyCOTL) Sky Children Of The Light
