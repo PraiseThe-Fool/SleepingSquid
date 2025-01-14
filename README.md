@@ -13,6 +13,7 @@
 - Terraria
 - Stardew Valley
 - CDO2
+- (MLBB) Mobile Legends Bang Bang
    
  ✦
   
