@@ -1,6 +1,6 @@
    
  ✦
-  
+
 
 𝙂𝘼𝙈𝙀𝙎 𝙁𝘼𝙉𝘿𝙊𝙈𝙎
 - (PT) Pony Town
@@ -23,6 +23,9 @@
 - Alien Stage
 - Link Click
 - (AC) Assassination Classroom
+- Return Of The Mount Hua Sect
+- The Academy's Undercover Professor
+- My S-Class Hunter
 - Frieren
 - Dungeon Meshi
 - That Time I Gon Reincarnated As A Slime
@@ -57,6 +60,18 @@
 - Karsearin: Adventures Of A Red Dragon
 - The Gardener In A Hunter World
 - The Apothecary Prince
+- Campfire Cooking Life In Another World
+- The Constellations Are My Disciple
+- The Gwichon Village Mystery
+- Killer Peter
+- Hero Killer
+- Villain To Kill
+- The Lone Necromancer
+- I Get Stronger The More I Eat
+- Return To Player
+- Doom Breaker
+- Teenage Mercenary
+- The Dungeon Cleaning Life Of A Once Genius Hunter
    
  ✦
   
