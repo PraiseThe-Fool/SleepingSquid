@@ -46,6 +46,7 @@
 - Apothecary Diaries
 - Tondemo Skill de Isekai Hourou Meshi
 - Horimiya
+- The Top Dungeon Farmer
    
  ✦
   
