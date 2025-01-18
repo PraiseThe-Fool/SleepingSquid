@@ -66,6 +66,8 @@
 - Killer Peter
 - Hero Killer
 - Villain To Kill
+- A Useless Villain
+- Winter Moon
 - The Lone Necromancer
 - I Get Stronger The More I Eat
 - Return To Player
