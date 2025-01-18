@@ -27,6 +27,7 @@
 - Dungeon Meshi
 - That Time I Gon Reincarnated As A Slime
 - Overlord
+- (TWATF) The World After The Fall
 - Saga Of Tanya The Evil
 - Skip And Loafer
 - Cells At Work
@@ -37,6 +38,7 @@
 - Special Civil Servant
 - Greatest Estate Developer
 - (TOTCF) Trash Of The Count's Family
+- Eleceed
 - Leveling Up, By Only Eating!
 - The Exiled Reincarnated Heavy Knight Is Unrivalled In Game Knowledge
 - The Old Man Reincarnated As A Villainess
@@ -48,6 +50,13 @@
 - Tondemo Skill de Isekai Hourou Meshi
 - Horimiya
 - The Top Dungeon Farmer
+- Return Of The Mad Demon
+- I Was The Final Boss
+- Best Teacher Baek
+- Absolute Regression
+- Karsearin: Adventures Of A Red Dragon
+- The Gardener In A Hunter World
+- The Apothecary Prince
    
  ✦
   
