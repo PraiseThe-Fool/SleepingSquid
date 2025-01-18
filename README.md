@@ -3,6 +3,7 @@
   
 
 𝙂𝘼𝙈𝙀𝙎 𝙁𝘼𝙉𝘿𝙊𝙈𝙎
+- (PT) Pony Town
 - (HSR) Honkai Star Rail
 - (GI) Genshin Impact
 - (WuWa) Wuthering Waves
