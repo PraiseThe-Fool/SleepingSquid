@@ -42,6 +42,18 @@
 - Greatest Estate Developer
 - (TOTCF) Trash Of The Count's Family
 - Eleceed
+- The Count's Secret Maid
+- When Two Villains Meet
+- Even When I'm Dead
+- At Your Mercy
+- Peace RestaurantI Stole The First Ranker's Soul
+- Lock Me Up, Duke!
+- Nebula's Civilization
+- The Villainess Just Wants To Live In Peace!
+- Behind Her Highness's Smile
+- My Avatars' Path To Greatness
+- Reincarnated Into A Cursed Game
+- I Grabbed The Leash Of The Blind Beast
 - Leveling Up, By Only Eating!
 - The Exiled Reincarnated Heavy Knight Is Unrivalled In Game Knowledge
 - The Old Man Reincarnated As A Villainess
