@@ -36,7 +36,7 @@
 - Cells At Work
 - Journey To The West
 - Solo Leveling
-- (BATF) Beginning After The End
+- (TBATF) The Beginning After The End
 - Mieruko-Chan
 - Special Civil Servant
 - Greatest Estate Developer
