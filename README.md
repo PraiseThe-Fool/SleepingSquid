@@ -9,6 +9,7 @@
 - (WuWa) Wuthering Waves
 - (PJsekai) Project Sekai
 - (CRK) Cookie Run Kingdom
+- (CRO) Cookie Run Ovenbreak
 - (SkyCOTL) Sky Children Of The 𝙇𝙞𝙜𝙝𝙩
 - Lunime Games
 - Minecraft
