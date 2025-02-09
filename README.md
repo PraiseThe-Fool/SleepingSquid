@@ -133,3 +133,4 @@
 - 16647 (I'M GONNA GET ATTACKED)
 - 4 Weeks Lover
 - Ten Count
+- Kiraide Isasete
